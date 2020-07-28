@@ -22,7 +22,7 @@ Listen to the words of the devotee. ... (3)
 Compassionate Malo, Fountain of Mercy,
 Get out of here,
 He is the water of Piyush, Sebi Bhakta Jan,
-Blessed be the life. ... (୪)
+Blessed be the life. ... (4)
 
 The past is coming, the future is known,
 Sin Nashini Lo Mor,
@@ -32,22 +32,22 @@ Minati to Sripayar. ... (5)
 Who took how much, who gave how much,
 There is no respect for that,
 Whatever you are looking for, whether it is with me or not,
-Please tell, whats the story of them big puppys ..... ... (୬)
+Please tell, whats the story of them big puppys. ... (6)
 
 Swollen fruit juice, no reverence,
 How fast,
 In what worship are you, happy mother,
-How to be happy. ... (୭)
+How to be happy. ... (7)
 
 How long will Mago remain silent,
 We have made a silent vow,
 More than half, gone mother,
-My way of life. ... (୮)
+My way of life. ... (8)
 
 In a nutshell, I'll see you later,
 Hopefully,
 How Tohar, Rup M. Dhurima,
-Ankibu is in front of me. ... (୯)
+Ankibu is in front of me. ... (9)
 
 The path goes to Sinai, Hudilo Janani,
 Hope is burning now,
