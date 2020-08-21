@@ -1,4 +1,4 @@
-![](assets\img\maa-durga.gif)
+![](assets/img/maa-durga.gif)
 
 > Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
 > [Click here to listen](https://soundcloud.com/teachersnigdha/a-request-to-you).
