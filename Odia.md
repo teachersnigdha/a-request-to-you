@@ -1,7 +1,7 @@
-![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+![](assets\img\maa-durga.gif)
 
 > Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
-> [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
+> [Click here to listen](https://soundcloud.com/teachersnigdha/a-request-to-you).
 
 #### ଜୟ ମା ଶିବାନୀ, ତୋ ପଦେ ପ୍ରଣତୀ,
 #### ଜଣାଉ ଭକ୍ତ ସମାଜେ,
